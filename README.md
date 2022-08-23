@@ -1,1 +1,1 @@
-
+Hello how's it going? My name is Julian Ming. I am an aspiring web developer who's recently just gotten his feet wet in the coding world. Lately I've been absorbing as much knowledge as I can to get to the next step of my career. Please feel free to message me whether it be for advice (for me), jobs, or any type of collaboration you'd want to work on. It's been a pleasure.
